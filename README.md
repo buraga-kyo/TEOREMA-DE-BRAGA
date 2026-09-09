@@ -4,6 +4,10 @@ eu imaginei o infinito e refleti...
 
 o universo é um espelho circular causando EFEITO de infinito...  
 
+<p align="center">
+  <img src="./paragentecomproblemadevistatelescopioenaotaousandonemoculoskkk.jpg">
+</p>
+
 logo falei EUREKA o infinito é apenas um efeito, coloque um espelho na frente do outro, existe um efeito de infinito, no universo, porem, mais denso e profundo a ponto de causar quase uma alucinação sinergica; é como se a gente fosse esse * e o universo ( ) nos estamos no meio ( * ) imagine que o ( ) é um circulo ok e nos estamos no meio, pra qualquer lugar que a gente olhar reflete meio que tudo, imagine um espelho circular gigante e voce no meio dele ou melhor, no inicio dele... agora olhe pra qualquer lugar, advinha oque acontece se fosse apenas ampliar a camera ??? isso mesmo é inifinito para sempre, mas é so um efeito.... enfim pensei como eu posso representar isso com numero?  
 
 ja sei !!  
